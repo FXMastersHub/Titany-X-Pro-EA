@@ -1,4 +1,4 @@
-# Titany X Pro EA
+# <a href="https://forextoolstore.com/product/titany-x-prop/">Titany X Pro EA</a>
 
 ![image](https://github.com/user-attachments/assets/072ce424-58a7-488b-8220-34ac290a5e42)
 
