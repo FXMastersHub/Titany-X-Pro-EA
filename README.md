@@ -4,7 +4,7 @@
 
 <br>
 <hr>
-➡️➡️➡️ Get <a href="https://forextoolstore.com/product/titany-x-prop/">Titany X Pro EA</a>
+➡️➡️ Get <a href="https://forextoolstore.com/product/titany-x-prop/">Titany X Pro EA</a> ⬅️⬅️
 <hr>
 <br>
 
