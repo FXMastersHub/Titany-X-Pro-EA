@@ -62,9 +62,9 @@ Titany X Pro EA is a well‑rounded automated tool for MT4 traders, especially t
 
 ## Support
 
-📩 Email - <a href="mailto:admin@forextoolstore.com">admin@forextoolstore.com</a>
-➡️ <a href="https://www.facebook.com/share/g/1CBq77wDk1/?mibextid=wwXIfr">Facebook</a>
-➡️ <a href="https://x.com/forextoolstore?s=21">Twitter</a>
+📩 Email - <a href="mailto:admin@forextoolstore.com">admin@forextoolstore.com</a><br>
+➡️ <a href="https://www.facebook.com/share/g/1CBq77wDk1/?mibextid=wwXIfr">Facebook</a><br>
+➡️ <a href="https://x.com/forextoolstore?s=21">Twitter</a><br>
 ➡️ <a href="https://www.tiktok.com/@forextoolstore?_t=ZM-8xItNq9AxHk&_r=1">TikTok</a>
 
 
